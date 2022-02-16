@@ -1,9 +1,2 @@
 DukhDardVedna
 IamDc4
-IronmanGujju
-PWN_BYTE
-HunterXD
-Pro_morningstar
-Devil_pundit
-abcdefghijklmnopqrstuvwxyzokbye
-AASKC_69
