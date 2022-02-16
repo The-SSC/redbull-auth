@@ -3,3 +3,5 @@ IamDc4
 Pro_morningstar
 anonymous_ib
 dark_4rmy_official
+luckyboy27
+CallMeVeiZiR
